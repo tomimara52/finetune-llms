@@ -9,6 +9,8 @@ Colab creada a partir de:
 https://colab.research.google.com/drive/1Ys44kVvmeZtnICzWz0xgpRnrIOjZAuxp?usp=sharing
 
 > SIEMPRE DAMOS CRÉDITO EN TECNOLOGÍA. NO SEA GARCA.
+
+
 Y si arman algo porfa me cuentan y me muestran que me va a alegrar el día.
 
 https://instagram.com/kardaver
